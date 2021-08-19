@@ -1,1 +1,1 @@
-coding is just like a game
+coding is just like a game.
